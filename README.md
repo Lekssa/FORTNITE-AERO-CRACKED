@@ -2,6 +2,7 @@
 AERO CHEATS FORTNITE CRACKED 
 
 To use, open the loader and enter this key: aerocracked1
+Then open fortnite and when in lobby press F2
 
 -------
 
